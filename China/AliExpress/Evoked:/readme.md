@@ -1,0 +1,1 @@
+- [pointer multimeter MF500 high-precision mechanical pointer meter inner magnetic outer magnetic 2500V](https://www.aliexpress.com/item/1005005915353382.html)
